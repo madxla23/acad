@@ -1,4 +1,4 @@
-## **A fonte certeira para o seu Projeto de Musculação**
+## **A fonte certeira para o seu Projeto de Musculação!**
 
 ### ️‍♀️ **Seu Guia Fitness Digital!** ️‍♀️
 
